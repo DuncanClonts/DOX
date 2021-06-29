@@ -46,8 +46,10 @@ Browser:Chrome (67.0.3396.99)
 User agent:Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/67.0.3396.99 Safari/537.36
  
 g2a: dunkeykong2012@gmail.com:Tehlolz123!
- 
+
+Duncan Clonts Address: (may be old now)
 12 DISCOVERY RIDGE RISE SW Calgary t3h4r2 Duncan Clonts
+//Lives in an apartment with jill robinson
 
 Steam:
 https://steamcommunity.com/id/dunkeykong/
