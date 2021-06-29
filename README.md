@@ -10,9 +10,10 @@ JeffreyRuthridge
 Skepta
 and many more scammer names.
  
-Known scammer, hacker, and shitty guy. If you give him access to anything, he will fuck you over.
- 
- 
+Known scammer, hacker, and shitty guy. If you give him access to anything, he will fuck you over. Has no real knowledge of hacking. Just a script kiddy. Uses botnets and rats to infilitrate people who have no sense. Then uses them to the best of his ability. (Which isn't much but he could find you paypal password and fuck you good)
+
+Diagnosed Schizophrenic. Maybe even autistic
+
 Discords:
 Skepta#3710
 ezhits#3710
