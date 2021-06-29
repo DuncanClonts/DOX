@@ -14,7 +14,6 @@ Known scammer, hacker, and shitty guy. If you give him access to anything, he wi
  
  
 Discords:
- 
 Skepta#3710
 ezhits#3710
 Dunkey#0420
