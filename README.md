@@ -3,14 +3,15 @@
 Duncan Clonts Dox:
 
 Aliases:
-DunkeyKong
-Dunkey
-EzHits
-JeffreyRuthridge
-Skepta
+DunkeyKong,
+Dunkey,
+EzHits,
+JeffreyRuthridge,
+Skepta,
+hits4u,
 and many more scammer names.
  
-Known scammer, hacker, and shitty guy. If you give him access to anything, he will fuck you over. Has no real knowledge of hacking. Just a script kiddy. Uses botnets and rats to infilitrate people who have no sense. Then uses them to the best of his ability. (Which isn't much but he could find you paypal password and fuck you good)
+Known scammer, hacker, and shitty guy. If you give him access to anything, he will fuck you over. Has no real knowledge of hacking. Just a script kiddy. Uses botnets and rats to infilitrate people who have no sense. Then uses them to the best of his ability. (Which isn't much but he could find you paypal password and fuck you good) He mainly cracks accounts using software available on most forums. Besides those 2 things, no threat.
 
 Diagnosed Schizophrenic. Maybe even autistic
 
